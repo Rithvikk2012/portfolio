@@ -104,7 +104,6 @@ Here is what I did at those places
 - Born in India
 🏫 Lots of Elementary Schools in Boston, MA
 - 🏫 Middle and High School in San Diego, CA
-- 🎓 Glendale CA Community College, UCLA Extension, LA Wilshire Computer Tech School '77 to '79
 
 ### Culture, Family, and Fun
 
